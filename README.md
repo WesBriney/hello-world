@@ -1,2 +1,0 @@
-# hello-world
-I am a long time technician looking to change career focus. I have spent my spare time studying software development. I am a member of Code Louisville and have been completing course work through TeamTreeHouse. I am pursuing paid internships and training opportunities to move over to a Junior/Entry Level position. I am very trainable and pick up on new concepts quickly. I have great attention to detail and very excited to learn more about the development industry. 
